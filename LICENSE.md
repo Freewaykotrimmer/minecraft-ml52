@@ -1,4 +1,4 @@
-#  
+#  automatic Scripts for minecraft is the best minecraft Script, featuring auto-sell and private server access. Safe and powerful for all your needs.
 
 
 
